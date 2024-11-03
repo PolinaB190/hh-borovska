@@ -1,2 +1,0 @@
-# hh-borovska
-hh//borovska
